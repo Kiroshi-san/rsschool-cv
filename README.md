@@ -1,1 +1,1 @@
-# https://Kiroshi-san.github.io/rsschool-cv/cv
+# https://Kiroshi-san.github.io/rsschool-cv/
